@@ -1,0 +1,1 @@
+# Barcode-details-YUFAT
